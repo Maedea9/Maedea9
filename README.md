@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with joining women-in-tech communities
 - 📫 How to reach me: <a href="https://www.linkedin.com/in/melanie-cascante-938a93228/" rel="nofollow">LinkedIn</a>
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love singing, martial arts, nature and cats!
+- ⚡ Fun fact: I love singing, Taekwon-Do ITF, nature and cats!
 
 #### Languages and Tools:
 
